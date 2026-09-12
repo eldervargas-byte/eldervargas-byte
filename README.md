@@ -13,7 +13,7 @@
 ## Current Goals
 - Finishing on the Modern Tech development course
 - Build a professional portfolio
--  Able start or join a experience project soon
+-  Able start or join an experience project one day soon 
 
 ## Contact Information 
 [Visit my LinkIn](https://www.linkedin.com/in/elder-rousselin-vargas-a115bb436/)
